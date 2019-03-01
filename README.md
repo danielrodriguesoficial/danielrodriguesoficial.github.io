@@ -1,2 +1,0 @@
-# danielrodriguesoficial
-Portifolio
